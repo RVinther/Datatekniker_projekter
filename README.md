@@ -2,7 +2,7 @@
 
 Herunder finder du et udvalg af mine skole- og fritidsprojekter.
 
-## Mangler du en voksenelev?
+## Mangler du en voksenlærling?
 
 Foruden en stor passion for fodbold, Formula One, litteratur og familieliv, kan du forvente:
 
